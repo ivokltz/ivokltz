@@ -1,5 +1,4 @@
-<p align="center"><a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fivokltz"><img src="https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fgithub.com%2Fivokltz&label=%F0%9D%84%9E%E2%8B%86%20%DD%81%E2%99%AA%20.&labelColor=%23af94cc&countColor=%2350417d&style=flat" /></a>
-  <p align="center"><img alt="daddy" src="https://github.com/user-attachments/assets/9f2f33e2-6c13-44e2-91f4-a58cd12fe71b" />
+<p align="center"><img alt="daddy" src="https://github.com/user-attachments/assets/9f2f33e2-6c13-44e2-91f4-a58cd12fe71b" />
 
 </div>
 <div align="center"> 
