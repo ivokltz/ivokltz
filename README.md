@@ -1,10 +1,10 @@
 <p align="center"><a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fivokltz"><img src="https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fgithub.com%2Fivokltz&label=%F0%9D%84%9E%E2%8B%86%20%DD%81%E2%99%AA%20.&labelColor=%23af94cc&countColor=%2350417d&style=flat" /></a>
-  <p align="center"><img alt="love" src="https://github.com/user-attachments/assets/5bb43449-5ae6-4e8a-a74d-1a0ce4d6a360" />
+  <p align="center"><img alt="daddy" src="https://github.com/user-attachments/assets/9f2f33e2-6c13-44e2-91f4-a58cd12fe71b" />
 
 </div>
 <div align="center"> 
   
-[<img alt="twink" src="https://github.com/user-attachments/assets/5da1479c-b93c-4f62-aa1e-2ddac1fc87c6" />](https://rentry.co/attesfandom)</a>ㅤ✶ㅤ[<img alt="charm" src="https://github.com/user-attachments/assets/46fa0e55-636c-4939-99e5-0ad0307a2d80" />](https://atteiu.atabook.org/)</a>ㅤ✶ㅤ[<img alt="ouu" src="https://github.com/user-attachments/assets/e1b43902-89dd-4302-99da-6219e1b06e7f" />](https://attexhonorable.straw.page/)
+[<img alt="tumblr_858f086acb3c86e8ffdecb8cf17cb286_228b7f45_75" src="https://github.com/user-attachments/assets/d468860a-89f2-4c18-b00f-b128984e8a76" />](https://rentry.co/attesfandom)</a>ㅤ✶ㅤ[<img alt="tumblr_858f086acb3c86e8ffdecb8cf17cb286_228b7f45_75" src="https://github.com/user-attachments/assets/f53021c4-2832-4aa6-9b51-cdcb65b1f8f2" />](https://atteiu.atabook.org/)</a>
 
 
 
